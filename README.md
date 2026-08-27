@@ -2,7 +2,7 @@
 
 [Link da Transcrição do Vídeo (Google Drive)](https://drive.google.com/file/d/1o1g-TjaBx8MDRIMpwR5NR6XOpqYzSSEo/view?usp=sharing)
 
-[Link de apresentação pptx] (https://docs.google.com/presentation/d/1PeKNgerrr_854qG8rQO-GISdIQWZdpm9/edit?usp=sharing&ouid=114215544640110980972&rtpof=true&sd=true)
+[Link de apresentação pptx](https://docs.google.com/presentation/d/1PeKNgerrr_854qG8rQO-GISdIQWZdpm9/edit?usp=sharing&ouid=114215544640110980972&rtpof=true&sd=true)
 
 # Recomendação de Investimento Imobiliário — Itapema (SC)
 
